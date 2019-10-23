@@ -24,4 +24,7 @@ Loretta, lorettaheinrich, pizza, flying
 
 Jayne, JayneN1, tea, drinking tea
 
+Rene, reneconrath02, CHICKEN AND RICE, piano
+
 Rider, Rider-zip, Keyboards, Balloon animals
+
